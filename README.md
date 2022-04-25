@@ -1,4 +1,4 @@
-# Leak Du Oneforall 😕
-`Vu que je suis énervé dsl je leak le oneforall V2 😞`
+# Leak Du Oneforall
 
+`Bonjour, j'ai décidé de leak la nouvelle version du oneforall..`
 `⚠️ Leaked by: Mirty & Weegl !`
